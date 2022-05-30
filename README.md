@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @owenchristofer
+- 👀 I’m interested in evriything
+- 🌱 I’m currently learning anithing
+- 💞️ I’m looking to collaborate on none
+- 📫 How to reach me email me on christoperowen01
